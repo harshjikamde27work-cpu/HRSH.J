@@ -56,7 +56,7 @@
 
 ### 📫 Let’s Connect
 
-- 📸 [Instagram: @harsh__2703](https://instagram.com/harsh__2703)
+- 📸 [Instagram: @harsh__27003](https://instagram.com/harsh__27003)
 - 💼 [LinkedIn (optional)](https://linkedin.com)
 - 🌐 Portfolio coming soon...
 
